@@ -1,4 +1,4 @@
-
+smart Scripts for 3008 offers the most advanced 3008 Script, with aimbot and auto-heal. Perfect for dominating any match.
 
 
 
